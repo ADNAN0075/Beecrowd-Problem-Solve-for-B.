@@ -1,1 +1,0 @@
-# Beecrowd-Problem-Solve-for-B.
